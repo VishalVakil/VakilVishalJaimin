@@ -1,2 +1,2 @@
-# VakilVishalJaimin
-Unlocking the possibilities!
+Hello Sugar Labs
+DO CODING, GO DIGITAL, SAVE THE TREES WITH VAKIL VISHAL JAIMIN.
